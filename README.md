@@ -14,7 +14,7 @@
 
 **飞兔云 VPN 官方注册入口：**
 
-[飞兔云官方注册入口](https://666.xn--h5qy75o.vip/#/register?code=wZDomyK1)
+[飞兔云官方注册入口](https://a.wwaann.com/?s=feitucloud)
 
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
@@ -190,7 +190,7 @@
 
 想进一步查看飞兔云 VPN 的注册信息、套餐价格和订阅说明，可以通过下面的入口进入：
 
-[飞兔云官方注册入口](https://666.xn--h5qy75o.vip/#/register?code=wZDomyK1)
+[飞兔云官方注册入口](https://a.wwaann.com/?s=feitucloud)
 
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
